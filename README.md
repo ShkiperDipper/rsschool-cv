@@ -1,1 +1,1 @@
-# rsschool-cv
+https://shkiperdipper.github.io/rsschool-cv/cv
